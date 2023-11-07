@@ -1,1 +1,0 @@
-# Wildangilangfirdaus.github.io
